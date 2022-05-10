@@ -1,0 +1,1 @@
+rubick-az.xyz
